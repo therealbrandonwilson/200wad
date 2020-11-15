@@ -1,0 +1,28 @@
+---
+title: "A Comfortable Cafe"
+created_at: 2020-08-22T12:20:35.000Z
+published_at: 2020-08-22T12:21:01.000Z
+---
+Stale coffee has been poured down the drain from the airpot thermoses, which now sit upside down on the drying rack. Underneath unoccupied tabletops a plastic vacuum moves in and between black metal legs. The sound is too abrasive for me to continue working so I lean back and look around the cafe not planning to think about anything in particular. But a thought comes to me right away upon seeing the old man in the far corner. I'd seen him there earlier when I walked through the cafe on my way to class this morning. Then he was sitting at a table near that couch. Now he is leaning back on the couch with a book. I wonder if he's been here all day. Besides he and myself, Chaz is the only other person here.
+
+Chaz nods at me as our eyes meet when I look over at him. He's about finished with vacuuming the area beneath the table beside me. For the past half hour he has been more janitor than barista -- more cleaning and tidying, and less drink-making and pre-made sandwich toasting. Still, the glowing sign in the window invites those walking by to come inside.
+
+In a college town, a cafe isn't where a normal kid wants to be after the sun sets. Much better to be at a bar or sitting across from a giant flat screen TV ripping a bong at a friend's house. This means that except for during midterms and finals, you can pretty much come to the cafe in the evenings and keep a table for yourself for a long time without feeling self conscious.
+
+I once thought baristas kept tabs on how long you stayed and the amount of money you spent. But after killing enough hours in cafes and listening to enough baristas, I've learned that generally they don't give a shit. The only people who actually care are other customers eyeing your table during rushes and of course yourself.
+
+Though maybe it's just me. I'm sure some truly don't give a shit, but I feel an obligation to pay my dues. Even if baristas might not mind if I buy a $1.50 coffee and sit there for hours, I still can't keep myself from incrementally buying more things as the hours pass. I might begin with just the initial coffee then later get a zucchini bread with some more coffee, and if I'm still there at a later hour I'll order something like a rooibus tea. On each transaction, I'll leave a good tip.
+
+Chaz prefers the evening shift because it provides him plenty of 'free' time to read books and sit on his phone. His pay is the same regardless of the shift so why not work the least stressful one, he'd argue. Also this way he gets to talk with people like me. It's impossible to have anything beyond small talk with the baristas working the earlier shifts. There's so little time you can chat following the transaction before it becomes rude to the next customer behind you. During these times is when it's so easy to think you want to get to know this person.
+
+It often feels like a barista could be a really good friend. I think this is the great fallacy of the cafe culture. There's this person who's job is not only to serve you your coffee but also to provide you some emotional niceties. For some really lonely people I think their quick conversation with the barista might be the only sunshine they see that day. I don't know. Maybe I'm romanticizing baristas too much. In fact I know I am. I'm still getting over it. But hanging out with Chaz recently has helped me get over the fetishizing.
+
+"It's cause of your narcissism. You think you're better than us."  "No I don't." -- "Wait you really think that I think that way?" "Well don't you? You think that it's below you and you're here to like save us. You think leaving a big tip means so much."
+
+Funny though that this guy, Chaz, the only barista I talk to as a friend says such things to me. None of the baristas would say something like that. But then again how could you ever maneuver from small talk about how great the weather is to that? You really can't. That's why small talk is safe. No place for such a slip into darkness.
+
+"I'll see you nextdoor." "Yes. I got about fifteen minutes left of cleaning left. So after closing up and locking up I'll probably be over in about 30." "What about that guy?" I ask of the old man in the corner.
+
+By the time Chaz arrives, I'm already down to the bottom of my second tall beer.
+
+"What took you so long?" "The guy. He was asleep." "So you didn't just wake him up and throw him out?" "Nah." "Well are you gonna get paid for the extra fifteen minutes you had to stay? What were you doing anyways?" "There's always something to do." Chaz orders a beer. "Well anyways I knew that he wasn't going to be sleeping long. He wasn't in a deep sleep." "How can you tell? Did he even buy a drink?" "My hunch. That couch he was on. It's comfortable, but it's not very homey. The cafe. That's what it is. It's comfortable but it can't be home." "I still think you should've just kicked him out come closing time." "Why do you think that?" "I don't know. Why should he be sleeping in a cafe anyways. He should just go home if he's that sleepy. So did he buy a drink or not?" "Well, I think that at his age, maybe the cafe is his home." "You mean he's homeless?" "No. Not like that. And yes he did buy a small tea. What I meant maybe where he lives doesn't feel like home to him. Maybe he's all alone." The two new beers arrive. We take sips without toasting. "Damn. You saying that just made me feel really bad." "Why? Because you were being a dick?" "No. Not because I was being a dick. Because you are right. He has no home but the cafe. I can already tell."
